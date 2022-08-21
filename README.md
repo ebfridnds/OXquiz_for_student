@@ -1,1 +1,1 @@
-# OXquiz_for_student
+# 안녕하세요. 화이팅입니다.
